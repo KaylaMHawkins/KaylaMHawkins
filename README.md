@@ -1,0 +1,5 @@
+- 👋🏾 Hi, I’m @KaylaMHawkins
+- 🌞 B+R in Cali
+- 💾 Currently in the prelim graphic design program
+- 🤍 Tea, natual sunlight and making playlists 
+- 💬 Chat me anytime!
